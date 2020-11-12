@@ -1,2 +1,2 @@
 # Liubov
-to on rights
+to check on rights
